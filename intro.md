@@ -28,7 +28,7 @@ The BIG Party believes that teachers and carers should be well compensated for t
 
 The BIG Party believes in the rule of law, and that no one is above the law. 
 
-The BIG Party believes in equal rights for women, and that women cannot be forced to bear children without consent. 
+The BIG Party believes in equal rights for women, and that women cannot be forced to bear children.
 
 The BIG Party has ideas about how to organize law enforcement to maximize its effectiveness. 
 
