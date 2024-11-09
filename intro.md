@@ -34,6 +34,8 @@ The BIG Party disapproves of the way that the cost of a college education has ri
 
 The BIG Party doesn't have a good answer for healthcare yet, but you can help us create one. 
 
+The BIG Party disapproves of security theater. 
+
 
 
 
