@@ -28,13 +28,15 @@ The BIG Party believes that teachers and carers should be well compensated for t
 
 The BIG Party believes in the rule of law, and that no one is above the law. 
 
+The BIG Party believes in equal rights for women, and that women cannot be forced to bear children without consent. 
+
 The BIG Party has ideas about how to organize law enforcement to maximize its effectiveness. 
 
 The BIG Party disapproves of the way that the cost of a college education has risen in recent decades. 
 
 The BIG Party doesn't have a good answer for healthcare yet, but you can help us create one. 
 
-The BIG Party disapproves of security theater. 
+
 
 
 
