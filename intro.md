@@ -2,7 +2,9 @@
 
 Of the BIG Party. Everyone is invited.
 
-The BIG Party exists to do what other political parties have failed to do: Make it possible to live comfortably on a single income, near work, with no threat of crime. We have to do this before we do any of the other important work that needs doing. 
+The BIG Party's vision is simple: It should be possible for all families to live comfortably on a single income, near work, in cities and towns where are there are no worries about crime. 
+
+Only under these conditions can we do the other important work that needs to be done. 
 
 # Our Big Ideas
 
